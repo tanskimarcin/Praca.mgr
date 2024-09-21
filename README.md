@@ -1,0 +1,1 @@
+# Praca.mgr
